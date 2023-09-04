@@ -1,2 +1,2 @@
-# sammanfatning3
+# sammanfattning3
 Sammanfattning kapitel 3 
